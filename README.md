@@ -1,1 +1,0 @@
-# Khushi-s-First-repository
